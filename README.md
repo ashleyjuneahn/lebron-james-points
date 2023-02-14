@@ -1,4 +1,4 @@
-# Lebron James becomes leading all-time scorer in NBA
+# Lebron James becomes top scorer in NBA
 
 ## Abstract
 
